@@ -22,9 +22,9 @@
 - Hackathons and Coding Competitions
 
 #### 📫 How to reach me ...
-- [LinkedIn]([https://www.linkedin.com/in/yelugurisaisathwika](https://www.linkedin.com/in/sathwika-yeluguri-a4245a25a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app))
+- [LinkedIn](https://www.linkedin.com/in/saisathwikayeluguri)
 - [Email](mailto:saisathwika.y20@gmail.com)
-- [Twitter](https://twitter.com/yourusername)
+- [Twitter](https://twitter.com/SaiSathwikaY)
 
 #### 😄 Pronouns: ...
 - She/Her
